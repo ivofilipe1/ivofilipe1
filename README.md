@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ivofilipe1
+- 👀 I’m interested in music, data analysis, and language learning.
+- 🌱 I’m currently learning Dutch, and play new instruments.
+- 💞️ I’m looking to collaborate on interesting data and language learning projects.
